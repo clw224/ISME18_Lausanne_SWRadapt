@@ -5,7 +5,7 @@ Thank you for visiting our poster! If you would like more information about the 
 
 If you'd like to see more posters from our group, please check out:
 
-Michelle Herrera's work: https://michellejherrera.weebly.com/isme-conference-2022.html
+Michelle Herrera's work: "Examining the potential of fecal microbiota transplants to treat gastrointestinal imbalance in greater one-horned rhinoceros" https://michellejherrera.weebly.com/isme-conference-2022.html
 
 Christine Parascandola's work:
 
