@@ -5,7 +5,7 @@ Thank you for visiting our poster! If you would like more information about the 
 
 If you'd like to see more posters from our group, please check out:
 
-Michelle Herrera's work: "Examining the potential of fecal microbiota transplants to treat gastrointestinal imbalance in greater one-horned rhinoceros" more info: https://michellejherrera.weebly.com/isme-conference-2022.html
+Michelle Herrera's work: "Examining the potential of fecal microbiota transplants to treat gastrointestinal imbalance in greater one-horned rhinoceros," PS18.540, more info: https://michellejherrera.weebly.com/isme-conference-2022.html
 
 Christine Parascandola's work: "Seaaonal changes in dietary phytoestrogens and their effect on the rhinoceros gut microbiome,"PS18.580"
 
