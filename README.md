@@ -12,5 +12,5 @@ Christine Parascandola's work: "Seasonal changes in dietary phytoestrogens and t
 Claire Williams's work: "The effects of climate on the microbiome diversity in a tropic lizard," PS18.611. 
 
 
-See other documents within the repo for more information.
+See other documents, including full poster and expanded figures, within the repo for more information.
 
